@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mariusk0
+- 👀 I’m interested in Project Management
+- 🌱 I’m currently learning Project Management
+- 💞️ I’m looking to collaborate on Project Management
+- 📫 How to reach me for Project Management? On Teams of course
